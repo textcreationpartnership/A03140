@@ -33,8 +33,12 @@ This keyboarded and encoded edition of the
 
 #####Body#####
 
+1. Come buy this new Ballad, before you doe goe: If you raile at the Author, I know what I know. To the Tune of, Ile tell you but so.
+IT is an old saying,that few words are best,And he that sayes little,shall liue most at rest:And I b
+    _ The Second Part. To the same Tune.
+
 #####Back#####
-Come buy this new ballad, before you doe goe: If you raile at the author, I know what I know To the 
+Printed by the Assignes of Thomas Symcocke.
 **Types of content**
 
   * There are 152 **verse** lines!
